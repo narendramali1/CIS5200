@@ -7,4 +7,3 @@ Jadhav Bhagyashree
 
 Mali Narendra
 
-Vaghela Mittal
